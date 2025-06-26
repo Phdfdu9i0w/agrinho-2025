@@ -1,0 +1,1 @@
+um senhor acorda todos os dias para plantar trigo com seu trator, ele começa, e solta varias sementes em um campo, as sementes germinão e cresce aos poucos, e deixa a plantação crescendo pra depois colher
